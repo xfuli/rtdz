@@ -1,6 +1,6 @@
 ➤➤➤热淘导航
 
-➤➤➤最新地址发布：https://retaodaohang.xyz
+➤➤➤最新地址发布：https://ret-aodh.cc
 
 ➤➤➤发送任意文字此邮件 retaodh@gmail.com ，将立刻获得最新的地址
 
